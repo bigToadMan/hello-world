@@ -14,7 +14,7 @@ ad mores
 as as as
 
 -- new features
-- penises
+- pens
 
 
 -- bigger bums
@@ -28,7 +28,5 @@ as as as
 
 abba is a good band
 
-
-ass
 
 
